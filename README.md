@@ -1,1 +1,3 @@
 # news
+
+# pafi kota magelang
